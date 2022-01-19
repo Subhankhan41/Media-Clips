@@ -1,0 +1,1 @@
+This media-clip of Channel City-042 gives an information of Mr. Subhan Khan receiving campus silver medal award for his excellent academic performance in the degree of Computer Engineering with a CGPA of 3.58/4.
